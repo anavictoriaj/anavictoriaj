@@ -10,4 +10,4 @@ _Sou a Ana Victória_
 - Instagram: @ana.rodriguesk
 
 
-![](https://tenor.com/pt-BR/view/fonsy-nunes-afonsinha-dan%C3%A7ando-gif-20797729)
+![](https://media.tenor.com/50hK-FUMt7sAAAAd/afonsinha-part.gif)
