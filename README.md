@@ -10,4 +10,6 @@ _Sou a Ana Victória_
 - Instagram: @ana.rodriguesk
 
 
-![](https://tenor.com/pt-BR/view/afonsinha-aghata-agatha-aghata-nunes-agatha-nunes-gif-24191674)
+
+![](![image](https://github.com/anavictoriaj/anavictoriaj/assets/143723833/8c024fcf-914e-4f93-bb62-6c6bf10d73db)
+
