@@ -11,5 +11,5 @@ _Sou a Ana Victória_
 
 
 
-![](https://media.tenor.com/zq26hXPclS4AAAAd/fonsy-nunes.gif)
+![](https://tenor.com/pt-BR/view/afonsinha-part-dance-fast-forward-gif-15689430)
 
