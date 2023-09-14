@@ -11,5 +11,5 @@ _Sou a Ana Victória_
 
 
 
-![](https://github.com/anavictoriaj/anavictoriaj/assets/143723833/8c024fcf-914e-4f93-bb62-6c6bf10d73db)
+![](https://media.tenor.com/68_-Hr4e_BMAAAAM/liarquivo-afonsinha.gif)
 
